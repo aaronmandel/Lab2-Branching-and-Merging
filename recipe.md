@@ -10,7 +10,7 @@
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
-2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, and vanilla extract.
+2. In a large bowl, whisk together the flour, Sugar, cocoa powder, chocolate chips, and vanilla extract.
 3. In a separate bowl, Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavor, beat the eggs and add them to the mixture. Stir until well combined.
 4. Mix in a handful of chocolate chunks for extra indulgence.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
